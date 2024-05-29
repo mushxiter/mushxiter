@@ -2,5 +2,4 @@
 
 - Me chamo Thabata e sou apaixonada por cheiro de jornais.
 
-![](![Uploading image.png…]()
-)
+![](https://aun.webhostusp.sti.usp.br/wp-content/uploads/2017/11/jornaisfotomarcossantos008-1-678x381.jpg)
